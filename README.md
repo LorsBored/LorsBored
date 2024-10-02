@@ -5,6 +5,7 @@
 - 📫 How to reach me ... idk
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I don't know what I'm doing here
+- <3 pfp by jesteropphobic on picrew <3
 
 <!---
 LorsBored/LorsBored is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
